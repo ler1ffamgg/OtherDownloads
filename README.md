@@ -1,6 +1,2 @@
-Ы1111# OtherDownloads
+# OtherDownloads
 
-111
-1111
-1
-Ы
